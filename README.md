@@ -2,7 +2,7 @@
 - 👀 I’m interested in in tech and doing cool stuff
 - 🌱 I’m currently learning Front end stuffs
 - 💞️ I’m looking to collaborate on any cool project designs
-- 📫 How to reach me on nidhamunintai@gmail.com
+- 📫 you can reach me on nidhamunintai@gmail.com
 - 😄 Pronouns: of course, its He/him
 - ⚡ Fun fact: I do crazy things all the time
 
